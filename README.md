@@ -5,5 +5,5 @@
 - 📫 How to reach me Harshtiwari999
 - 😄 Pronouns: HE.
 - ⚡ Fun fact: Smiling.
-linkedin.com/in/shraddhansh-tiwari
 I'm on Instagram as @hars_htiwari999.
+github.com/Shraddhanshtiwari
