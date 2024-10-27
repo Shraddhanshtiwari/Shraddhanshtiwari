@@ -6,6 +6,6 @@
 - 😄 Pronouns: HE.
 - ⚡ Fun fact: Smiling.
 
--I'm on Instagram as @hars_htiwari999.
+-Instagram : @hars_htiwari999.
 
 -Github.com/Shraddhanshtiwari
