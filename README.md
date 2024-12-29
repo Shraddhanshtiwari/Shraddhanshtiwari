@@ -1,3 +1,4 @@
+https://skillicons.dev/icons?i=js,html,css,wasm
 - 👋 Hi, I’m @Shraddhanshtiwari
 - 👀 I’m interested in Coding,HTML, JavaScript.
 - 🌱 I’m currently learning BCA.
