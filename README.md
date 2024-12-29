@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on Github
 - 📫 How to reach me https://www.instagram.com/hars_htiwari999
 - 😄 Pronouns: HE.
-- ⚡ Fun fact: Smiling.
+- ⚡ Fun fact: I like Programming 
 
 -https://www.instagram.com/hars_htiwari999.
 
